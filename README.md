@@ -1,1 +1,1 @@
-All Type Of Minecraft Client
+More new client will be added
